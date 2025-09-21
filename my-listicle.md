@@ -85,19 +85,19 @@ I remember how hyped up my dad and I were when this game was announced to be rel
 ---
 
 ## Nintendo DS/3DS
+*(The covers for these don't work so I will make a list of the games instead)*
+I feel like the titles speak for themselves but these games all had some impact on the kinds of games I wanted to make, at least as a kid.
 
-### Animal Crossing New Leaf (2012)
-![Animal Crossing New Leaf](https://www.thecoverproject.net/uploads/pending/3ds.animalcrossingnewleaf_US.1755376741618595266_thumb.jpg)
-*retail cover uploaded to The Cover Project by MrMoustacheMan*
-
-### Tomodachi Life (2013)
-![Tomodachi Life](https://www.thecoverproject.net/uploads/pending/3ds.tomodachilife_US.17553756271128117137_thumb.jpg)
-*retail cover uploaded to The Cover Project by MrMoustacheMan*
-
+- ### [Lego Harry Potter: Years 1-4 (2010)](https://legogames.fandom.com/wiki/LEGO_Harry_Potter:_Years_1-4_(Handheld))
+- ### [Nintendogs + Cats (2011)](https://nintendogs.fandom.com/wiki/Nintendogs_%2B_Cats)
+- ### [Super Mario Bros 2 (2012)](https://www.ign.com/wikis/new-super-mario-bros-2/Walkthrough)
+- ### [Animal Crossing New Leaf (2012)](https://nookipedia.com/wiki/Animal_Crossing:_New_Leaf)
+- ### [Tomodachi Life (2013)](https://tomodachi.fandom.com/wiki/Tomodachi_Life_Wiki)
 
 ---
 
 ## Board Games
+*All of the images except for Genshin Tarot were uploaded to boardgamegeek.com! Genshin Tarot is my own screenshot from Tabletop Simulator*
 
 ### Eldritch Horror (2013)
 ![Eldritch Horror](https://cf.geekdo-images.com/Xk2LUnaiDvCZyPXfbsJvfg__imagepage@2x/img/yWhAMUvfffEMDFKJJDz8hfdEnwQ=/fit-in/1800x1200/filters:strip_icc()/pic2272163.jpg)
@@ -125,5 +125,8 @@ PEAK BOARD GAME. It has a bit of a difficult learning curve but once I learned i
 ![Genshin Tarot Game](genshin.png)
 - [Link to the Game](https://boardgamegeek.com/boardgame/346643/genshin-tarot)
 
-I know, Genshin Impact... This is way better than the actual video game in my opinion. I can play this board game for hours with all new characters. there's a bit of a learning curve but it's a really fun fan made board game. The visuals are great and all fanart while the mechanics of the game are really fun and engaging.
+I know, Genshin Impact... This is way better than the actual video game in my opinion. I can play this board game for hours with all new characters. There's a bit of a learning curve but it's a really fun fan made board game. The visuals are great and all fanart while the mechanics of the game are really fun and engaging.
+
+---
+This was a lot longer than I thought it would be so I skipped some commentary on other parts. Each of these games had some mechanic, narrative design, game design, etc. that inspired the loads of game ideas I have today. If I could, I would rant about them a lot more. 
 
