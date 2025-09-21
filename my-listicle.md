@@ -87,11 +87,11 @@ I remember how hyped up my dad and I were when this game was announced to be rel
 ## Nintendo DS/3DS
 
 ### Animal Crossing New Leaf (2012)
-![](https://www.thecoverproject.net/uploads/pending/3ds.animalcrossingnewleaf_US.1755376741618595266_thumb.jpg)
+![Animal Crossing New Leaf](https://www.thecoverproject.net/uploads/pending/3ds.animalcrossingnewleaf_US.1755376741618595266_thumb.jpg)
 *retail cover uploaded to The Cover Project by MrMoustacheMan*
 
 ### Tomodachi Life (2013)
-![](https://www.thecoverproject.net/uploads/pending/3ds.tomodachilife_US.17553756271128117137_thumb.jpg)
+![Tomodachi Life](https://www.thecoverproject.net/uploads/pending/3ds.tomodachilife_US.17553756271128117137_thumb.jpg)
 *retail cover uploaded to The Cover Project by MrMoustacheMan*
 
 
