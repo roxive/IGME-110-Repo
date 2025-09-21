@@ -121,7 +121,7 @@ PEAK BOARD GAME. It has a bit of a difficult learning curve but once I learned i
 - [Link to the Game](https://boardgamegeek.com/boardgame/223321/detective-a-modern-crime-board-game)
 
 ### Genshin Tarot (2022)
-![]()
+![Genshin Tarot Game](genshin.png)
 https://boardgamegeek.com/boardgame/346643/genshin-tarot
 
 I know, Genshin Impact... This is way better than the actual video game in my opinion. I can play this board game for hours with all new characters. there's a bit of a learning curve but it's a really fun fan made board game. The visuals are great and all fanart while the mechanics of the game are really fun and engaging.
