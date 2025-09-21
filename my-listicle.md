@@ -100,22 +100,28 @@ I remember how hyped up my dad and I were when this game was announced to be rel
 ## Board Games
 
 ### Eldritch Horror (2013)
-https://boardgamegeek.com/boardgame/146021/eldritch-horror
+![Eldritch Horror](https://cf.geekdo-images.com/Xk2LUnaiDvCZyPXfbsJvfg__imagepage@2x/img/yWhAMUvfffEMDFKJJDz8hfdEnwQ=/fit-in/1800x1200/filters:strip_icc()/pic2272163.jpg)
+- [Link to the Game](https://boardgamegeek.com/boardgame/146021/eldritch-horror)
 PEAK BOARD GAME. It has a bit of a difficult learning curve but once I learned it, I absolutely love it. From the design to the mechanics, it's so engaging and can take up to 4 hours or possibly more. You have to plan out your actions before doing them so you and your team can have the best outcome and win. There are two main challenges at play such as preventing the awakening of the Ancient One (the final boss), Mysteries (3 challenges that need to be solved in order to end the game before the Ancient One is awakened). In order to successfully progress to the end of the game, players need to gather clues which are used to solve the Mysteries, defeat monsters because an overflow of a certain amount can lead to an early awakening, closing gates which spawns the monsters, and the actual act of fighting monsters using your skills. There are about 50 or so investigators to choose from, each with a different skill amount, starting point and assets. 
 
 ### Arkham Horror (Third Edition - 2018)
-https://boardgamegeek.com/boardgame/257499/arkham-horror-third-edition
+![Arkham Horror](https://cf.geekdo-images.com/0rvBasnadQd5GB0fZ4_0vQ__imagepage@2x/img/j3E_hQb1fssV0PNnkB1F2ZERSV8=/fit-in/1800x1200/filters:strip_icc()/pic4552467.jpg)
+- [Link to the Game](https://boardgamegeek.com/boardgame/257499/arkham-horror-third-edition)
 
 ### Luthier (2025)
-https://boardgamegeek.com/boardgame/371330/luthier
+![Luthier](https://cf.geekdo-images.com/r1EJqaFNzRAc9qaU2gUzWQ__imagepage@2x/img/MlwrAbD9KdhzsiSsfMv31FFL0aM=/fit-in/1800x1200/filters:strip_icc()/pic7893660.jpg)
+- [Link to the Game](https://boardgamegeek.com/boardgame/371330/luthier)
 
-### Sherlock Holmes Consulting Detective: Jack the Ripper & West End Adventures (2016) 
-https://boardgamegeek.com/boardgame/204305/sherlock-holmes-consulting-detective-jack-the-ripp
+### Sherlock Holmes Consulting Detective: Jack the Ripper & West End Adventures (2016)
+![Sherlock Board Game](https://cf.geekdo-images.com/Rh3yrLY7Vbq5rcfih3OTtQ__imagepage/img/WeLqsQKQ77jMRdRGlcxB8r3PW_0=/fit-in/900x600/filters:no_upscale():strip_icc()/pic5363890.png)
+- [Link to the Game](https://boardgamegeek.com/boardgame/204305/sherlock-holmes-consulting-detective-jack-the-ripp)
 
 ### Detective: A Modern Crime Board Game (2018)
-https://boardgamegeek.com/boardgame/223321/detective-a-modern-crime-board-game
+![Detective Board Game](https://cf.geekdo-images.com/exggHT3BLAt8bgO8XJPNig__imagepage/img/Iolk1m8_VDM75Q-rNn9bvLngsn0=/fit-in/900x600/filters:no_upscale():strip_icc()/pic5038180.jpg)
+- [Link to the Game](https://boardgamegeek.com/boardgame/223321/detective-a-modern-crime-board-game)
 
 ### Genshin Tarot (2022)
+![]()
 https://boardgamegeek.com/boardgame/346643/genshin-tarot
 
 I know, Genshin Impact... This is way better than the actual video game in my opinion. I can play this board game for hours with all new characters. there's a bit of a learning curve but it's a really fun fan made board game. The visuals are great and all fanart while the mechanics of the game are really fun and engaging.
